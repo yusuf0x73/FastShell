@@ -1,5 +1,5 @@
 
-<h2 align="center">Free Palestine && Terrorist israel</h2>
+<h2 align="center">Free Palestine</h2>
 
 # FastShell ⚡
 
